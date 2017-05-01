@@ -1,6 +1,6 @@
 ## Abuse in Sex Trafficking
 
-[//]: # (Could you find some quotes from victims or police reports--anything to make the argument feel a bit more visceral (but, importantly, not exploitative))
+[//]: # (Could you find some quotes from victims or police reports--anything to make the argument feel a bit more visceral (but, importantly, not exploitative)?)
 
 Violence and assault against women have come into the spotlight recently, with new information coming to light about rape on college campuses, sexual harassment on social media, and Donald Trump’s comments about sexually harassing women during his 2016 campaign. With all of this new information, many young women have mobilized to fight to stop violence against women. Take Back the Night rallies have become popular on many college campuses, as has encouraging college women to report rape and other sexual assaults, and volunteering organizations focused on helping women who are victims of violence. This recent focus on the violent repression of women has also brought to light just how many women are affected by violence committed by men. While all of this new information has brought many new young women into the fight, one facet of violence against women that is sometimes ignored is the violence that often accompanies sex trafficking.
 
@@ -18,7 +18,7 @@ Abuse in sex trafficking is a huge issue, and one that is largely unaddressed. I
 
 ## Young women’s role in preventing sex trafficking
 
-[//]: # (Might want to add links to organizations))
+[//]: # (Might want to add links to orgs))
 
 I believe that young women are a strong and under utilized force in the fight against sex trafficking. Sexual slavery largely affects adolescent girls and young adult women, so we then have a distinctive perspective and special ability to combat sex trafficking. Young women are the key to stopping human trafficking because, if trained correctly, we will be able to spot peers who are victims, reach out to victims on a more personal level than adults or men can, and relate to the struggle of victims in a deeper way. Exploring different ways to address sex trafficking is a great way for us to explore the options we have to stop sex trafficking.
 
